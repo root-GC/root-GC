@@ -1,4 +1,4 @@
-# 💻 Génio Cossa😒
+# 💻 Génio Cossa
 
 **`ESTUDANTE DE ENGENHARIA DE SOFTWARE`**
 
